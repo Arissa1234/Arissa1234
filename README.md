@@ -1,3 +1,3 @@
 Hi 
 I am Arissa 
-Nice to meet u ^^
+nice to meet u ^^
